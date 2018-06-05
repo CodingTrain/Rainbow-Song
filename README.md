@@ -7,3 +7,4 @@ The song is a happy song.
 WoW
 
 I see the earth move under my feet
+Another bites the dust
