@@ -7,4 +7,5 @@ blue
 green
 pink
 yellow
+red
 
