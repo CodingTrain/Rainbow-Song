@@ -2,4 +2,7 @@
 
 A song about rainbows in the key of C major.
 
-The song is a happy song.
+All hail the visible spectrum!
+The colors that retinas welcome!
+
+La-la-la-la!
