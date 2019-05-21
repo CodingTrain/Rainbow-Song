@@ -1,4 +1,4 @@
-# Rainbow-Song
+# Rainbow-Song made by hamzhori
 
 A song about rainbows in the key of C major.
 
