@@ -1,5 +1,10 @@
-# Rainbow-Song
+# Rainbow-POEM
 
-A song about rainbows in the key of C major.
+it used to be a poem
+it has to be
+the world recognises the poem
+and now you see
 
-The song is a happy song.
+dont take it away from us
+please oh please
+
